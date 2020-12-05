@@ -1,1 +1,0 @@
-# amitah_bot
